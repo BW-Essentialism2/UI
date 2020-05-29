@@ -25,7 +25,8 @@ Page to compare values(3) to current activities/current projects
 
 ok i want a mega cool and modern landing page
 
-
+Journaling
+-
 
 5/24
 
